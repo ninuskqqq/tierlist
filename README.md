@@ -9,7 +9,7 @@
 
 🤝 ZERO DRAMA – nemusíš ho loupat, krájet ani řešit žádnou pecku jak u broskve.
 
-### 💸 ECONOMY KING ### – většinou levné, dostupné a seženeš ho skoro všude.
+### 💸 ECONOMY KING### – většinou levné, dostupné a seženeš ho skoro všude.
 
 🎒 PORTABLE GOAT – hodíš ho do batohu a jedeš. Žádný skill issue.
 
